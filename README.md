@@ -1,5 +1,9 @@
 # treinamento-asimov
-repositorio para treinamentos na asimov  
-ensinando branch  
-ensinando codigo morse na branch errada
+dfhbaf ghwdghghdf
+gfgfgfdf
+gdfg
+df
+g
+dfg
+
 
